@@ -1,6 +1,6 @@
 https://guns.lol/ephemeralbeing
 
-(re-work in progress..)
+(re-work in progress..to be completed fully on summer break..)
 
 ![](https://komarev.com/ghpvc/?username=ephemeralcreation&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
 
