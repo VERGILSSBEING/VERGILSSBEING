@@ -15,3 +15,5 @@ _|⭐️| --> I'm a certified Vergil Sparda yumeshipper/self-shipper #1!!  Don't
 ![image](IMG_4148.gif)
 
 > «It'll be fun to fight with the Prince of Darkness. If my father did it... I should be able to do it too!.»
+
+![image](IMG_4284.gif)
