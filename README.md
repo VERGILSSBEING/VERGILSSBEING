@@ -4,7 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=VERGILSSBEING&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
 
- ![image](https://github.com/VERGILSSBEING/Vergil-/blob/8113d8f26f92bca752c8a1731f3d70a4425e5233/IMG_4149.gif)
+![image](IMG_4284.gif)
  
 **”Greetings,fellow crying devil! Welcome to the humble abode of self-sacrifice and isolation.”**
 
@@ -16,4 +16,4 @@ _|⭐️| --> I'm a certified Vergil Sparda yumeshipper/self-shipper #1!!  Don't
 
 > «It'll be fun to fight with the Prince of Darkness. If my father did it... I should be able to do it too!.»
 
-![image](IMG_4284.gif)
+ ![image](https://github.com/VERGILSSBEING/Vergil-/blob/8113d8f26f92bca752c8a1731f3d70a4425e5233/IMG_4149.gif)
