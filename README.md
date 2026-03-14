@@ -6,7 +6,7 @@ https://guns.lol/ephemeralbeing
 
  ![image](https://github.com/VERGILSSBEING/Vergil-/blob/8113d8f26f92bca752c8a1731f3d70a4425e5233/IMG_4149.gif)
  
-**”Greetings,fellow soldier!🦅Welcome to the humble abode of self-sacrifice.”**
+**”Greetings,fellow crying devil! Welcome to the humble abode of self-sacrifice and isolation.”**
 
 _|⭐️| --> I'm a certified Vergil Sparda yumeshipper/self-shipper #1!!  Don't be shy and see my Carrd and Pronouns to get to know me better. It's a delight for me to acquire new acquitances!_
 
