@@ -2,9 +2,9 @@ https://guns.lol/ephemeralbeing
 
 (re-work in progress..to be completed fully on summer break..)
 
-![](https://komarev.com/ghpvc/?username=ephemeralcreation&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
+![](https://komarev.com/ghpvc/?username=VERGILSSBEING&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
 
- ![image](https://github.com/ephemeralcreation/Vergil-/blob/8113d8f26f92bca752c8a1731f3d70a4425e5233/IMG_4149.gif)
+ ![image](https://github.com/VERGILSSBEING/Vergil-/blob/8113d8f26f92bca752c8a1731f3d70a4425e5233/IMG_4149.gif)
  
 **”Greetings,fellow soldier!🦅Welcome to the humble abode of self-sacrifice.”**
 
