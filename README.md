@@ -1,4 +1,4 @@
-https://guns.lol/ephemeralbeing
+
 
 (re-work in progress..to be completed fully on summer break..)
 
