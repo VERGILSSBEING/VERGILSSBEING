@@ -1,6 +1,6 @@
 
 
-(re-work in progress..to be completed fully on summer break..)
+(re-work in progress..STRAWPAGE IS AN ENORMOUS WIP..BUT TRUST THE PROCESS I BEG,MY YUMESHIP IS SHEER EPICNESS!!)
 
 ![](https://komarev.com/ghpvc/?username=VERGILSSBEING&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
 
