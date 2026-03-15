@@ -8,7 +8,7 @@
  
 **”Greetings,fellow crying devil! Welcome to the humble abode of self-sacrifice and isolation.”**
 
-_|⭐️| --> I'm a certified Vergil Sparda yumeshipper/self-shipper #1!!  Don't be shy and see my Carrd and Pronouns to get to know me better. It's a delight for me to acquire new acquitances!_
+_|⭐️| --> I'm Ephemeral/Eph, a certified Vergil Sparda yumeshipper/self-shipper #1 and my pairing name goes by "Bladebond"!!  Don't be shy and see my Carrd and Pronouns to get to know me (and soon) my sona better. It's a delight for me to acquire new acquitances!_
 
   𒄆𓁹✞𒀱✞𓁹𒄆
 
