@@ -10,8 +10,6 @@
 
 _|⭐️| --> I'm Ephemeral/Eph, a certified Vergil Sparda yumeshipper/self-shipper #1 and my pairing name goes by "Bladebond"!!  Don't be shy and see my Strawpage and Pronouns to get to know me (and soon) my sona better. It's a delight for me to acquire new acquitances!_
 
-![image](https://github.com/VERGILSSBEING/VERGILSSBEING/blob/b4f12bfc33f65f7b1d9e1f57549c702bda823e77/IMG_4757.png)
-
 ![image](https://github.com/VERGILSSBEING/VERGILSSBEING/blob/cb31069bbe4893c6df7aeca1dd7446fbce79b236/IMG_4755.png)
 <sub>🎁'd by ins0mni4x!</sub>
 
