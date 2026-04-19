@@ -12,7 +12,7 @@ _|⭐️| --> I'm Ephemeral/Eph, a certified Vergil Sparda yumeshipper/self-ship
 
 ![image](https://github.com/VERGILSSBEING/VERGILSSBEING/blob/36b2debeff81a3812a309da73a9546e79c81b756/IMG_4758.png)
 ![image](https://github.com/VERGILSSBEING/VERGILSSBEING/blob/cb31069bbe4893c6df7aeca1dd7446fbce79b236/IMG_4755.png)
-<sub>🎁'd by ins0mni4x!</sub>
+<sub>🎁'd by ins0mni4x,my deadweight!</sub>
 
 _«ᴿᵉᵖˡᵃᶜᵉ ʸᵒᵘʳ ʰᵉᵃʳᵗ ʷⁱᵗʰ ᵐⁱⁿᵉ
 ᴰᵉᵉᵖ ⁱⁿˢⁱᵈᵉ.ᴾˡᵉᵃˢᵉ ˢᵗᵃʸ ʷⁱᵗʰ ᵐᵉ ᵗʰʳᵒᵘᵍʰ ᵗʰᵉ ⁿⁱᵍʰᵗ ᶠˡʸ ʷⁱᵗʰᵒᵘᵗ ˢᵒʳʳᵒʷ, ᴵⁿ ᵐʸ ᵈʳᵉᵃᵐˢ ʷᵉ ᵐᵉᵉᵗ ᵃᵍᵃⁱⁿ 
