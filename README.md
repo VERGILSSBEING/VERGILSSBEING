@@ -8,12 +8,17 @@
  
 **”Greetings,fellow crying devil! Welcome to the humble abode of self-sacrifice and isolation.”**
 
-_|⭐️| --> I'm Ephemeral/Eph, a certified Vergil Sparda yumeshipper/self-shipper #1 and my pairing name goes by "Bladebond"!!  Don't be shy and see my Carrd and Pronouns to get to know me (and soon) my sona better. It's a delight for me to acquire new acquitances!_
+_|⭐️| --> I'm Ephemeral/Eph, a certified Vergil Sparda yumeshipper/self-shipper #1 and my pairing name goes by "Bladebond"!!  Don't be shy and see my Strawpage and Pronouns to get to know me (and soon) my sona better. It's a delight for me to acquire new acquitances!_
 
   𒄆𓁹✞𒀱✞𓁹𒄆
 
-![image](IMG_4148.gif)
+![image](https://github.com/VERGILSSBEING/VERGILSSBEING/blob/cb31069bbe4893c6df7aeca1dd7446fbce79b236/IMG_4755.png)
+<sub>🎁'd by ins0mni4x!</sub>
 
-> «It'll be fun to fight with the Prince of Darkness. If my father did it... I should be able to do it too!.»
+> «Replace your heart with mine
+Deep inside.Please stay with me through the night
+Fly without sorrow
+In my dreams we meet again
+For you I live, I would die for you
+You'll stay deep inside my heart.»
 
- ![image](https://github.com/VERGILSSBEING/Vergil-/blob/8113d8f26f92bca752c8a1731f3d70a4425e5233/IMG_4149.gif)
