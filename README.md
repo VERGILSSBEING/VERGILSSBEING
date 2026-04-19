@@ -15,10 +15,7 @@ _|⭐️| --> I'm Ephemeral/Eph, a certified Vergil Sparda yumeshipper/self-ship
 ![image](https://github.com/VERGILSSBEING/VERGILSSBEING/blob/cb31069bbe4893c6df7aeca1dd7446fbce79b236/IMG_4755.png)
 <sub>🎁'd by ins0mni4x!</sub>
 
-> «Replace your heart with mine
-Deep inside.Please stay with me through the night
-Fly without sorrow
-In my dreams we meet again
-For you I live, I would die for you
-You'll stay deep inside my heart.»
+««ᵣₑₚₗₐcₑ yₒᵤᵣ ₕₑₐᵣₜ wᵢₜₕ ₘᵢₙₑ 
+Dₑₑₚ ᵢₙₛᵢdₑ.ₚₗₑₐₛₑ ₛₜₐy wᵢₜₕ ₘₑ ₜₕᵣₒᵤgₕ ₜₕₑ ₙᵢgₕₜ Fₗy wᵢₜₕₒᵤₜ ₛₒᵣᵣₒw ᵢₙ ₘy dᵣₑₐₘₛ,
+wₑ ₘₑₑₜ ₐgₐᵢₙ Fₒᵣ yₒᵤ ᵢ ₗᵢᵥₑ, ᵢ wₒᵤₗd dᵢₑ fₒᵣ yₒᵤ . Yₒᵤ'ₗₗ ₛₜₐy dₑₑₚ ᵢₙₛᵢdₑ ₘy ₕₑₐᵣₜ.».
 
