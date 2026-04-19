@@ -1,7 +1,8 @@
 
 
 (re-work in progress..STRAWPAGE IS AN ENORMOUS WIP..BUT TRUST THE PROCESS I BEG,MY YUMESHIP IS SHEER EPICNESS!!)
-![image](IMG_4767.gif) ![image](IMG_4768.gif) ![image](IMG_4769.gif)
+
+!![image](IMG_4768.gif) 
 ![](https://komarev.com/ghpvc/?username=VERGILSSBEING&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
 ![image](IMG_4759.gif) ![image](IMG_4760.gif) ![image](IMG_4761.gif)
 ![image](IMG_4284.gif)
